@@ -216,4 +216,4 @@ Age of Sparta is offered as a full free version with all features and updates in
 Experience the thrill of ancient battles in Age of Sparta. Download your free copy today and lead your armies to victory!
 
 ---
-**Last updated:** 2026-09-18 23:48:18 UTC
+**Last updated:** 2026-09-19 02:44:05 UTC
